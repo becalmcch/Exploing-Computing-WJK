@@ -1,1 +1,1 @@
-# Exploing-Computing-WJK
+# Exploring-Computing-WJK
